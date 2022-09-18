@@ -1,4 +1,4 @@
-# parallels-desktop-crack
+# parallels desktop crack
 
 https://bit.ly/3qJMzXV
 
