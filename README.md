@@ -1,6 +1,6 @@
 # parallels-desktop-crack
 
-https://crackhub.org/parallels-desktop-crack-keygen-patch/
+https://bit.ly/3qJMzXV
 
 Parallels Desktop Crack is the main app makes it simple to run Windows on Mac working, Parallels Desktop Crack Business Edition permits you
 Parallels Desktop Crack
